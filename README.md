@@ -1,1 +1,1 @@
-# -Project_Mate_academty
+# -Project_Mate_academy
